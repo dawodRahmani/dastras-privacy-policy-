@@ -60,4 +60,4 @@ We may update this policy as the application changes. We will publish the revise
 Contact
 For privacy questions or requests concerning Dastras (دسترس), contact:
 
-Email: [SUPPORT EMAIL]
+Email: dawodrahmani45@gmail.com
